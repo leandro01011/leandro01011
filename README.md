@@ -8,4 +8,4 @@ Meu nome é leandro
 
 ### Você pode entrar em contato comigo em: tw1358a@gmail.com
 
-![](https://media.tenor.com/TLhWkKdr770AAAAM/giga-chad.gif)
+![](https://media.tenor.com/V_0w49fA6b8AAAAM/horse-horse-smile.gif)
