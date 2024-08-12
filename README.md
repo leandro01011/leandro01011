@@ -8,4 +8,4 @@ Meu nome é leandro
 
 ### Você pode entrar em contato comigo em: tw1358a@gmail.com
 
-![](https://media.tenor.com/PoBNrF0XWi0AAAAM/meme-lang.gif)
+![](https://media.tenor.com/FfYjdjpr3bgAAAAM/homer-the-simpsons.gif
